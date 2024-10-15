@@ -1,0 +1,2 @@
+# baskent
+CPY TAKIM ÇALIŞMASI
